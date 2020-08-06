@@ -7,6 +7,11 @@ title: About
 
 This blog will server as the de facto newsletter for my Uploaded Fairy webcomic, and eventually, a graphic novel. For those that want updates on the progress of my graphic novel, this is the one you should read.
 
+## Peertube Channel
+My main webcomic channel can be found here: [Peertube](https://video.ploud.jp/video-channels/mytalkshow/videos)
+
+Music related to the Uploaded Fairy universe will be here: [Music](https://video.ploud.jp/video-channels/musicchannel/videos)
+
 ## FAQs
 
 Note that I don't accept surprise interviews. If there is an interview planned for me, let me be involved to some degree in the planning. I will do free interviews in exchange for a promotion. You should never make that promotion a rule however, and I've written off places that assign rules to people who essentially aren't even their employees. This is a disgusting youtube trend that should stop.
