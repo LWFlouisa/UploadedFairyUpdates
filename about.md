@@ -9,6 +9,8 @@ This blog will server as the de facto newsletter for my Uploaded Fairy webcomic,
 
 ## FAQs
 
+Note that I don't accept surprise interviews. If there is an interview planned for me, let me be involved to some degree in the planning. I will do free interviews in exchange for a promotion. You should never make that promotion a rule however, and I've written off places that assign rules to people who essentially aren't even their employees. This is a disgusting youtube trend that should stop.
+
 Q: Do you prefer to create one shots or longer series.<br />
 A: I tend to prefer multiple stand alone volumes, rather than multiple floppies. I realize the American market is more used to floppy format. But having grown up mainly on manga, I tend to prefer multiple stand alone volumes. Uploaded Fairy, for example, will be a stand alone volume in a larger narrative about the setting I am developing.
 
