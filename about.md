@@ -9,21 +9,21 @@ This blog will server as the de facto newsletter for my Uploaded Fairy webcomic,
 
 ## FAQs
 
-Q: Do you prefer to create one shots or longer series.
+Q: Do you prefer to create one shots or longer series.<br />
 A: I tend to prefer multiple stand alone volumes, rather than multiple floppies. I realize the American market is more used to floppy format. But having grown up mainly on manga, I tend to prefer multiple stand alone volumes. Uploaded Fairy, for example, will be a stand alone volume in a larger narrative about the setting I am developing.
 
-Q: What do you see as the future of print?
+Q: What do you see as the future of print?<br />
 A: In general, I feel like print will survive, but in a more niche format: the small independant magazine. Not by magazine, I don't mean large press. But more the hand band zine market we find on webshops like etsy. With that in mind, I also feel that distributing a script to the artist, the print form may not actually be necessary. SyncThing, while also a good service for private file syncing, can also be used to send files securing. In this case, you can send a moble accessible html file of the script to your artist.
 
 I also think ebooks are good as part of the main magazine website as a way of offering features you can't ordinarily get ( without shipping CDs ) in the print magazine, such as music. But cheap newsprint magazines should stay around in case of an EMP blast, where the electric grid is compromise either do to a large scale civil conflict, or other disaster. Think of it as "Magazines Ready To Read" that advertise the volumes printed on higher quality paper. This is why we need both ebooks and print.
 
-Q: Do you have a favorite art medium for traditional art?
+Q: Do you have a favorite art medium for traditional art?<br />
 A: I am most partial to charcoal shading and ink washes. I am presently experimenting with charcoal wash.
 
-Q: What are your thoughts on the focus on merchandize for comics?
+Q: What are your thoughts on the focus on merchandize for comics?<br />
 A: In general, I would really prefer if the comic industry focus less on producing sellable merchandize, and more on what really makes comics good: producing a graphic novel that you can't put down.
 
-Q: Do you draw your own art, or hire an artist?
+Q: Do you draw your own art, or hire an artist?<br />
 A: Presently I draw my own art, but will be accepting offers on Villages IO soon. Note that the website doesn't allow the exchange for real cash, as it's more of a bartering website. I also can't exchange physical cash do to my employment situation. I'm hoping when I move to Montreal, this will change. Or maybe by that point I'll be good enough as an artist I wont need the help.
 
 Offer question suggestions at this blog's email. Please keep it to the theme of the site.
