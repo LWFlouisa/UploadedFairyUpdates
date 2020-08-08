@@ -33,4 +33,11 @@ A: In general, I would really prefer if the comic industry focus less on produci
 Q: Do you draw your own art, or hire an artist?<br />
 A: Presently I draw my own art, but will be accepting offers on Villages IO soon. Note that the website doesn't allow the exchange for real cash, as it's more of a bartering website. I also can't exchange physical cash do to my employment situation. I'm hoping when I move to Montreal, this will change. Or maybe by that point I'll be good enough as an artist I wont need the help.
 
+Q: What are you thoughts on hand lettering vs. lettering digitally?
+A: I feel like this is a much more complex question than what is often given in webcomic communities. Generally this depends on how neat your hand writing is, and whether your comic requires a lot of borderless captions and narration. In general hand lettering works best when it is done without a border. You can also use multi-purpose labels as well. If your hand writing isn't very neat, then by all means digitally letter.
+
+I disagree that hand lettered pages should be done in cursive or all caps, as I feel like this tends to make the writing look even less legible. I started learning a little Japanese, and to me Japanese characters are actually ( believe it or not ) more legible than Latin Cursive once you are used to it.
+
+The only time I might digitally letter is when I do Gag A Day format.
+
 Offer question suggestions at this blog's email. Please keep it to the theme of the site.
