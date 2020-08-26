@@ -1,10 +1,10 @@
 ---
-title: Desert World: An Epic In Sumi Painting
+title: Desert World An Epic In Sumi Painting
 published: true
 ---
 This is an experiment in poetry comics, which will increasingly become my default writing style for comic script format. The goal of this is to create a sequential art form that is neither quite Manga or Bande Dessinnee, but somewhere in betwee.
 
-
+~~~
 DESERT WORLD: AN EPIC IN SUMI PAINTING
 
 Panel 1. A young woman in a tattered blue dress and long blond hair, is locked into a Guillotine.
@@ -61,3 +61,4 @@ leaves for the next city.
 
 Caption: Perhaps the only answer
          was to slice open neck.
+~~~
