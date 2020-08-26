@@ -17,7 +17,7 @@ Caption: The guillotine falling
          slashing open.
 
 Panel 2. The young woman is instructing her bodyguard, a young dark skinned woman covered to
-protect her from the sun, to retrieve flower from the baker in the old city that had once
+protect her from the sun, to retrieve flour from the baker in the old city that had once
 been Neo-Chattanooga.
 
 Caption: There was once a slave
