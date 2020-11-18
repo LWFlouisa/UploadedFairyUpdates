@@ -2,7 +2,7 @@
 title: Neither Monetary Merit Of Eliminating Merit
 published: true
 ---
-There is a lot of talk about left-wing circles about eliminating the meritocracy, but I don’t really see thing as an improvement. Consider that, by virtue of eliminating all merit criteria, what has been allowed to happen on some art websites is opening the flood gates to permitting all sorts of art submissions regardless of their quality, and basing things on the price people are willing to pay for Commissions. At first glance this might seem like a free market, but what it has replaced was genuine assessment about artistic merit.
+There is a lot of talk about left-wing circles about eliminating the meritocracy, but I don’t really see this as an improvement. Consider that, by virtue of eliminating all merit criteria, what has been allowed to happen on some art websites is opening the flood gates to permitting all sorts of art submissions regardless of their quality, and basing things on the price people are willing to pay for Commissions. At first glance this might seem like a free market, but what it has replaced was genuine assessment about artistic merit.
 
 Artistic Merit one of those things that is neither ultra right-wing or ultra left-wing. It is practically invisible in today’s discussion about whether or not to have a system based on merit. Do not misunderstand, modern left-wing circles have not gotten rid of systems of merit. They have just replaced it with merit based on oppressed status. Someone like myself who is trans, apparently has more merit than someone else who isn’t, regardless of my artistic merit. In this respect, Comicsgate is correct.
 
